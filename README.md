@@ -1,1 +1,0 @@
-# lddtyping34532
